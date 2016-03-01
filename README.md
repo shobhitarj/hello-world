@@ -1,2 +1,13 @@
 # hello-world
 first shot at GIT
+So..this is how a journey has to begin..with a certain amount of naivity and uncertainity.
+This is what adds not only to the excitement but also to the determination...Determination to learn..to grow..to evolve..to get accustomed!!
+n yet find new and unexpected things along the shore!!
+BUT..THEN..YOU WILL ASK...WHATS THE WHOLE POINT OF IT!??
+TO WHICH i WILL SAY...MAYBE thats what we have undertaken the journey for....
+to figure out....what ws the point of it all..or rather what point it should make for us..
+SO ..in a way...we choose..though very subtlely..what a Journey would bring to us....and what will it render to us...
+now you will ask...but sometimes...we dont even choose to undertake one...but we find ourselves...moving along through it...
+Well..then you must realise...that these journies are the very mark of our existence.
+n it was never about choosing to be on one...you already are...u already were...
+it ws just the matter of realisation..and also the fact that all dat you percieve as being a journey is a subset of your larger one!!
